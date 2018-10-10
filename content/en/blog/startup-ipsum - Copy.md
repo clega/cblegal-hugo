@@ -11,8 +11,6 @@ $ complicated techie code git bash ubuntu
 >>> return value init foo
 ```
 
-Responsive innovate grok latte disrupt intuitive actionable insight SpaceTeam grok. Human-centered design Steve Jobs Steve Jobs pitch deck pivot disrupt fund parallax affordances venture capital pair programming. Pivot earned media user centered design affordances agile innovate actionable insight latte.
-
 
 Responsive innovate grok latte disrupt intuitive actionable insight SpaceTeam grok. Human-centered design Steve Jobs Steve Jobs pitch deck pivot disrupt fund parallax affordances venture capital pair programming. Pivot earned media user centered design affordances agile innovate actionable insight latte.
 
