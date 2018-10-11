@@ -4,7 +4,7 @@ date: 2018-10-04T11:58:39-05:00
 tags: ["act of god", "insurance", "peril", "tornado"]
 ---
 
-The words "Acts of God" conjure plagues of locusts and lice, and festering boils. But, after six tornadoes blew through the Ottawa area in September 2018, the phrase may also conjure something just as frightening to Ottawa homeowners: the possible denial of insurance benefits.
+The words "Acts of God" conjure plagues of locusts and lice, and festering boils. But, after six tornadoes blew through the Ottawa area in September 2018, the phrase may also conjure something just as frightening to Ottawa homeowners: the possible denial of insurance coverage for damage to their property.
 
 
 
@@ -16,11 +16,11 @@ The policy will likely not speak of "acts of God." The expression is used more c
 
 
 
-Canadians prefer the term "perils." It sounds a fair bit less majestic, but also more accurate, as coverage is truly not based on theological reasoning. 
+Canadian inurance companies prefer the term "perils." It sounds a fair bit less majestic, but also more accurate, because coverage is truly not based on theological reasoning. 
 
 
 
-Coverage availability is the result of complex assessments of risk and cost. Some perils are frequent and produce extensive damage, which makes them very expensive to insure. As a result, they are regularly excluded from coverage and are essentially uninsurable.  Other perils are still common enough and expensive enough that they are not automatically included in the basic coverage, but coverage can be purchased as an add-on. Yet other  perils will be covered at no additional cost.
+Coverage availability is the result of complex assessments of risk and cost. Some perils are frequent and produce extensive damage, which makes them very expensive to insure. As a result, they are regularly excluded from coverage and are essentially uninsurable.  Other perils are still common enough and expensive enough that they are not automatically included in the basic coverage, but coverage can be purchased as an add-on. Yet other perils are covered at no additional cost.
 
 
 
